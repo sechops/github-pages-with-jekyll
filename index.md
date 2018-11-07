@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Learning to Double Check
 
-I'm glad you are here. I plan to talk about ...
+not a bad course so far
